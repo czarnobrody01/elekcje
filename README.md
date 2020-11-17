@@ -1,1 +1,1 @@
-# elekcje
+# moja opina o elekcjach
